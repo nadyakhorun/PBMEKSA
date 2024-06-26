@@ -6,4 +6,4 @@ Nama Anggota Kelompok :
 
 2. Dhea Dwi Adelia (312210116)
 
-3. Ihsan Hadimulya ()
+3. Ihsan Hadimulya (312210047)
